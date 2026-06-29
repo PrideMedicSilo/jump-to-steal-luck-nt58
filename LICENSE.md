@@ -1,4 +1,4 @@
-
+jump to steal lucky blocks updated Scripts is the best jump to steal lucky blocks Script, featuring aimbot and god mode. Safe and powerful for all
 
 
 
